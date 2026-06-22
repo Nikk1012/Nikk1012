@@ -4,7 +4,7 @@
 
 - 📫 How to reach me , pls dont 
 - 😄 Pronouns: he / him
-- ⚡ Fun fact: NOO
+- ⚡
 - 
 
 <!---
