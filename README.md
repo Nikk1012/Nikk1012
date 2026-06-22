@@ -4,7 +4,8 @@
 
 - 📫 How to reach me , pls dont 
 - 😄 Pronouns: he / him
-- ⚡ Fun fact: i am kindda boring 
+- ⚡ Fun fact: NOO
+- 
 
 <!---
 Nikk1012/Nikk1012 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
